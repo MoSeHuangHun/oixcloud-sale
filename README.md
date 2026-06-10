@@ -8,7 +8,7 @@
 交易价格：1000  
 交易方式：USDT  
 联系方式：私聊 / 留言联系
-        @shuaibaichengshi
+    TG:@shuaibaichengshi
 
 ## 说明
 
